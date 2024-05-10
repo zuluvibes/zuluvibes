@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @zuluvibes
-- 👀 I’m interested in ...crypto  
+- 👀 I’m interested in ...flying
 - 🌱 I’m currently learning ...linux & github
 - 💞️ I’m looking to collaborate on ...shi20
-- 📫 How to reach me ...keybase.io
+- 📫 How to reach me ...pick up the phone
 - 😄 Pronouns: ...yes sir
 - ⚡ Fun fact: ...the earth is round
 
