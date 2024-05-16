@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @zuluvibes
+- 👋 Hi, I’m @Blue Trust
 - 👀 I’m interested in ...flying
 - 🌱 I’m currently learning ...linux & github
 - 💞️ I’m looking to collaborate on ...shi20
